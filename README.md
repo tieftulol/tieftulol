@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @tieftulol
+- 👀 I’m interested in coding  
